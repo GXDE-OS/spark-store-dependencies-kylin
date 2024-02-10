@@ -1,0 +1,1 @@
+UOS/deepin请勿安装
